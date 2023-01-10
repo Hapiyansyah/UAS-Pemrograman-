@@ -6,7 +6,7 @@ Kelas : TI.22.A2
 
 Link YouTube
 
-#### [KLIK DISINI](https://youtu.be/i9BDc6ACs7c)
+#### [KLIK DISINI](https://youtu.be/q34fuAQDIxA)
 
 Link pdf
 
